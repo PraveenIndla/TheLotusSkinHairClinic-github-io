@@ -49,4 +49,8 @@ Patients praise Dr. Praveen for his friendly demeanor, clear communication, and 
 ## Visit Dr. Praveen Today  
 If you’re looking for expert skin care in Kurnool, **Dr. Praveen** is the specialist you can rely on. Whether you’re dealing with a persistent skin issue or simply want to enhance your appearance, Dr. Praveen’s expertise and personalized care will help you achieve your goals.  
 
-📞 **Contact Dr. Praveen’s Clinic** to schedule an appointment today and take the first step toward radiant, healthy skin!  
+📞 **Contact Dr. Praveen’s Clinic**:  
+- Website: [The Lotus Skin & Hair Clinic](https://www.thelotusskinhairclinic.com/)  
+- Phone: **+91 9642646381**  
+
+Take the first step toward radiant, healthy skin today!  
